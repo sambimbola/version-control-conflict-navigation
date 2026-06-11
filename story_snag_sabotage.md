@@ -46,5 +46,4 @@ Who committed this un-Australian crime? Kev tightened his apron and marched towa
 
 Write here to continue the mystery...
 ### We are looking for the charcater that took the recipe
-### Dave lookin suspicious
-### George added new line
+The Bin bird should be looked into
